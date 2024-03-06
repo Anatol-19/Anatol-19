@@ -81,4 +81,4 @@ Email: <a href="mailto:Anatol@staffonly39.ru">Anatol@staffonly39.ru</a>
 
  Ссылка на моё <a href='https://kaliningrad.hh.ru/resume/8efcba06ff0be7985c0039ed1f384d74566675'> резюме на HH.ru</a> 
 
-  LinkedIn: <a href="www.linkedin.com/in/%D0%B0%D0%BD%D0%B0%D1%82%D0%BE%D0%BB%D0%B8%D0%B9-%D0%BA%D0%B8%D1%81%D0%B5%D0%BB%D1%91%D0%B2-4b122291">тут</a>
+  LinkedIn: <a href="https://www.linkedin.com/in/%D0%B0%D0%BD%D0%B0%D1%82%D0%BE%D0%BB%D0%B8%D0%B9-%D0%BA%D0%B8%D1%81%D0%B5%D0%BB%D1%91%D0%B2-4b122291">тут</a>
